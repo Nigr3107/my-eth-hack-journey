@@ -1,0 +1,1 @@
+Link to the articles: https://www.riverloopsecurity.com/tags/hardware/
